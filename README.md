@@ -1,1 +1,1 @@
-https://frabjous-fenglisu-240b18.netlify.app
+https://pageproduitchaussure.netlify.app
